@@ -20,26 +20,60 @@
 
 <img width="736" height="151" alt="___13_-removebg-preview" src="https://github.com/user-attachments/assets/2f05bccc-252c-49d5-be08-b47fb3cdd09a" />
 <details>
+   <summary>byi !!</summary>
+
+ ☆ i'm 14
+ 
+ ☆ i am not diagnosed with anything HOWEVER. i am not mentally stable.
+ 
+ ☆ i'm not good with comforting people, but it's okay to vent,, just ask pls
+   
+ ☆ never EVER send me s/h pics or idolize it. immediate block.
+     
+ ☆ i can be clingy esp if you become my fp. lmk if it bothers you and I'll do my bets from there!!
+     
+ ☆ I rarely approach / contact first. i promise I don't hate you.
+     
+ ☆ i get anxious RLLY easily- and i'm kind of a pushover. please take note of this when interacting!
+     
+ ☆ uhm my grammer and spelling suck ok.
+     
+ ☆ i have a partner !
+     
+ ☆ andd i am very awkward to talk to ok "^_^
+</details>
+
+<details> 
 <summary>ponytown info !!</summary>
 please come sit with me in ponytown!! I absolutely love it. I'm rarely sitting with someone, but if I am, feel free to sit with us!
 
-usually in a dandy's world area >>>
+usually in dandy's world area >>>
 </details>
 
 <details>
-<summary>boundaries !!</summary>
-if you are 18+ please do not make sexual jokes around me! If you are -16, then go ahead idrc, and if you're -11, just..no :( 
-I don't care if you're a proshipper just please don't talk about your ships around me... Same with spawnism.
-I can block / unfriend freely and without explanation. also, RP DNI!!!
- ~~~
- while on the topic of ships, i'm fine talking about berryfunny or maybe moonberry, and most unproblematic ships... except fruitcake. not a fan! just nothing nsfw-ship related, thanks!
+<summary>boundaries/dni !!</summary>
+
+☆ I can block / unfriend freely and without explanation. also, RP DNI!!!
+
+☆ while on the topic of ships, i'm fine talking about berryfunny or maybe moonberry, and most unproblematic ships... except fruitcake. not a fan! just nothing nsfw-ship related, thanks!
+
+   
+☆ also, I have a partner! however, i (aswell as my partner) am okay with semi-sexual JOKES. no actual flirting plss.
+
+☆ if you support or are in the coaal fandom pls dni!!
+
+☆ + iwc dandy's world fandom (jst the weirdos rlly...), hh / hb fandom, and ppl who are heavily religious.
+
+☆ if you have jealousy issues pls iwec.
+
+☆ dni 18+ and 11-, iwc 16-18 and 11-12. + basic dni criteria, spawnists, +proshippers ,,, also heavy dni on disorder fakers/hypocrites.
 </details>
 
   <details>
     <summary>creds!</summary>
-    pfp by cirkuszo on twitter/X
+   ☆ pfp by cirkuszo on twitter/X
     
-   art on respository is by me!! drawing at the top is my looeysona >_>
+   ☆ art on respository is by me!! drawing at the top is my looeysona >_>
   </details>
 <img width="736" height="151" alt="___13_-removebg-preview" src="https://github.com/user-attachments/assets/3787776c-c4c9-4157-a677-69d4ba5b1a92" />
 
