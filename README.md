@@ -6,11 +6,13 @@
 <img width="322" height="600" alt="looeysona" src="https://github.com/user-attachments/assets/f29fff93-b6a6-4d33-b042-cd3e93a68fcd" />
   
   ![Static Badge](https://img.shields.io/badge/-balloon-ffbf00?logo=gleam&logoColor=ffbf00&label=silly&labelColor=grey&color=ffbf00)
-꒱ l̲o̲on / z͟ ,, [kin name/pony cos name is fine!]
+$${\color{#fff356} ꒱ \space loon \space or \space z,, \space (nicknames \space are \space fine)}$$
 
-⸝ ⸝ they 𓏵 them ⋮ agender !
+$${\color{#fff356} ⸝ ⸝  \space they \space 𓏵 \space them \space ⋮ \space agender \space .}$$
 
-, ⋆︶ 14 — artist ／➶／ sign ata ♪ cud + cover comf ^_^
+$${\color{#fff356}, ⋆︶ \space 14 \space — \space therian \space ／➶／ \space cud \space + \space cover \space comf \space ! }$$
+
+$${\color{#fff356} links \space !!}$$
 
 [🎈](https://ch4nc3.atabook.org/)
 , [🍓](https://en.pronouns.page/@l00nz)
@@ -20,7 +22,7 @@
 
 <img width="736" height="151" alt="___13_-removebg-preview" src="https://github.com/user-attachments/assets/2f05bccc-252c-49d5-be08-b47fb3cdd09a" />
 <details>
-   <summary>byi !!</summary>
+   <summary>$${\color{#fff356} byi \space !!}$$</summary>
 
  ☆ i'm 14
  
@@ -44,14 +46,14 @@
 </details>
 
 <details> 
-<summary>ponytown info !!</summary>
+<summary>$${\color{#fff356} pt \space info \space !!}$$</summary>
 please come sit with me in ponytown!! I absolutely love it. I'm rarely sitting with someone, but if I am, feel free to sit with us!
 
 usually in dandy's world area >>>
 </details>
 
 <details>
-<summary>boundaries/dni !!</summary>
+<summary>$${\color{#fff356} boundaries/dni \space !!}$$</summary>
 
 ☆ I can block / unfriend freely and without explanation. also, RP DNI!!!
 
@@ -70,7 +72,7 @@ usually in dandy's world area >>>
 </details>
 
   <details>
-    <summary>creds!</summary>
+    <summary>$${\color{#fff356} creds \space !}$$</summary>
    ☆ pfp by cirkuszo on twitter/X
     
    ☆ art on respository is by me!! drawing at the top is my looeysona >_>
@@ -82,3 +84,6 @@ usually in dandy's world area >>>
 
 
 </div>
+
+
+
