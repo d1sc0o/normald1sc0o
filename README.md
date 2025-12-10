@@ -18,7 +18,7 @@ $${\color{#fff356} links \space !!}$$
 , [🍓](https://en.pronouns.page/@l00nz)
 , [💌](https://loonz.straw.page)
 , [🎪](https://ch4nc3e.straw.page)
-, [🍰](https://guns.lol/r4d11o)
+, [🍰](https://guns.lol/loonytoony)
 
 <img width="736" height="151" alt="___13_-removebg-preview" src="https://github.com/user-attachments/assets/2f05bccc-252c-49d5-be08-b47fb3cdd09a" />
 <details>
