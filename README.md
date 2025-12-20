@@ -10,7 +10,7 @@ $${\color{#fff356} ꒱ \space loon \space or \space z,, \space (nicknames \space
 
 $${\color{#fff356} ⸝ ⸝  \space they \space 𓏵 \space them \space ⋮ \space agender \space .}$$
 
-$${\color{#fff356}, ⋆︶ \space 14 \space — \space therian \space ／➶／ \space cud \space + \space cover \space comf \space ! }$$
+$${\color{#fff356}, ⋆︶ \space 14 \space — \space fictkin \space ／➶／ \space cud \space + \space cover \space comf \space ! }$$
 
 $${\color{#fff356} links \space !!}$$
 
@@ -32,16 +32,20 @@ $${\color{#fff356} links \space !!}$$
    
  ☆ never EVER send me s/h pics or idolize it. immediate block.
      
- ☆ i can be clingy esp if you become my fp. lmk if it bothers you and I'll do my bets from there!!
+ ☆ i can be clingy esp if you become my fp. lmk if it bothers you and I'll do my best from there!!
      
  ☆ I rarely approach / contact first. i promise I don't hate you.
      
  ☆ i get anxious RLLY easily- and i'm kind of a pushover. please take note of this when interacting!
+
+ ☆ umm I am a Sprout kin.. and a Looey kin if u couldn't tell ^^"
      
  ☆ uhm my grammer and spelling suck ok.
      
  ☆ i have a partner !
-     
+
+ ☆ berryfunny shipper 
+ 
  ☆ andd i am very awkward to talk to ok "^_^
 </details>
 
@@ -68,7 +72,7 @@ usually in dandy's world area >>>
 
 ☆ if you have jealousy issues pls iwec.
 
-☆ dni 18+ and 11-, iwc 16-18 and 11-12. + basic dni criteria, spawnists, +proshippers ,,, also heavy dni on disorder fakers/hypocrites.
+☆ basic dni criteria, spawnists, +proshippers ,,, also heavy dni on disorder fakers/hypocrites.
 </details>
 
   <details>
