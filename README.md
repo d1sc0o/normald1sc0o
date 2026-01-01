@@ -2,9 +2,6 @@
    
   
   <img width="348" height="219" alt="New Drawing" src="https://github.com/user-attachments/assets/9c19ee04-55a4-46f9-a103-9a7ef1280117" />
-
-<img width="322" height="600" alt="looeysona" src="https://github.com/user-attachments/assets/f29fff93-b6a6-4d33-b042-cd3e93a68fcd" />
-  
   ![Static Badge](https://img.shields.io/badge/-balloon-ffbf00?logo=gleam&logoColor=ffbf00&label=silly&labelColor=grey&color=ffbf00)
 $${\color{#fff356} ꒱ \space loon \space or \space z,, \space (nicknames \space are \space fine)}$$
 
@@ -85,6 +82,22 @@ usually in dandy's world area >>>
 
 
 <img width="700" height="500" alt="New Drawing (1)" src="https://github.com/user-attachments/assets/863bea54-a99a-4d9d-b752-25e2854f118d" />
+
+<details>
+    <summary>$${\color{#fff356} important \space !}$$</summary>
+   ☆ Hey soo before you interact with me, there's a few things you should know!
+Regarding who I am: I am a fourteen year old fictionkin. I am perfectly comfortable with doubles, and I'm not super in-your-face about my kins. However, if you're uncomfy w/ doubles then hide or block me ^^ kin list will be on my strawpage for anyone who wants to see it.
+
+I am not mentally stable. I am not diganosed with anything, and I don't claim to have anything. However, I have had some serious (non descript) mental issues before and I still do now. Also, I'm a very bad people pleaser, though I'm trying to be better about it, please be aware of that.
+
+I'm fine with 'mean' jokes, kys/kms jokes, etc. I'm fine with slurs. I do not curse very often. Be careful with sh jokes, especially if I'm not doing well.
+
+Never idolize mental illness, sh, or suicide around me. Sh topics can be very triggering to me so be very very careful.
+
+I am overall a shy person. I get nervous or anxious very easily, be patient ok? Because of this i get scared to interact or contact first. Promise i don't hate you ^^ That being said, I do get very scared to approach people or talk to people. Especially when I think you're cool, and I think pretty much everyone is cool.
+
+TO MY OOMFS!! hey you guys mean a lot to me even though we don't talk. I enjoy sitting around you guys. If i have any kind of dni in my mind, feel free to sit with me. If i don't have any dni.. still feel free to sit with me. I love looove sitting with people, it makes me very happy. Love you guys ^^
+  </details>
 
 
 </div>
