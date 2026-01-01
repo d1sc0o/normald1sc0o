@@ -77,8 +77,6 @@ usually in dandy's world area >>>
   <details>
     <summary>$${\color{#fff356} creds \space !}$$</summary>
    ☆ pfp by cirkuszo on twitter/X
-    
-   ☆ art on respository is by me!! drawing at the top is my looeysona >_>
   </details>
 <img width="736" height="151" alt="___13_-removebg-preview" src="https://github.com/user-attachments/assets/3787776c-c4c9-4157-a677-69d4ba5b1a92" />
 
