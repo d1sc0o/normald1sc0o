@@ -2,7 +2,9 @@
    
   
   <img width="348" height="219" alt="New Drawing" src="https://github.com/user-attachments/assets/9c19ee04-55a4-46f9-a103-9a7ef1280117" />
+  
   ![Static Badge](https://img.shields.io/badge/-balloon-ffbf00?logo=gleam&logoColor=ffbf00&label=silly&labelColor=grey&color=ffbf00)
+
 $${\color{#fff356} ꒱ \space loon \space or \space z,, \space (nicknames \space are \space fine)}$$
 
 $${\color{#fff356} ⸝ ⸝  \space they \space 𓏵 \space them \space ⋮ \space agender \space .}$$
