@@ -16,7 +16,7 @@ $${\color{#fff356} links \space !!}$$
 
 [🎈](https://ch4nc3.atabook.org/)
 , [🍓](https://en.pronouns.page/@l00nz)
-, [💌](https://loonz.straw.page)
+, [💌](https://l00nz.straw.page/)
 , [🎪](https://ch4nc3e.straw.page)
 , [🍰](https://guns.lol/loonytoony)
 
