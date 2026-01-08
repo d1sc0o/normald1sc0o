@@ -37,13 +37,13 @@ $${\color{#fff356} links \space !!}$$
      
  ☆ i get anxious RLLY easily- and i'm kind of a pushover. please take note of this when interacting!
 
- ☆ umm I am a Sprout kin.. and a Looey kin if u couldn't tell ^^"
+ ☆ looey kin!!
      
  ☆ uhm my grammer and spelling suck ok.
      
  ☆ i have a partner !
 
- ☆ berryfunny shipper 
+ ☆ berryfunny shipper (multishipper in general but this one is my favorite)
  
  ☆ andd i am very awkward to talk to ok "^_^
 </details>
@@ -71,7 +71,7 @@ usually in dandy's world area >>>
 
 ☆ if you have jealousy issues pls iwec.
 
-☆ basic dni criteria, spawnists, +proshippers ,,, also heavy dni on disorder fakers/hypocrites.
+☆ basic dni criteria, spawnists ,,, also heavy dni on disorder fakers/hypocrites.
 </details>
 
   <details>
@@ -96,7 +96,7 @@ Never idolize mental illness, sh, or suicide around me. Sh topics can be very tr
 
 I am overall a shy person. I get nervous or anxious very easily, be patient ok? Because of this i get scared to interact or contact first. Promise i don't hate you ^^ That being said, I do get very scared to approach people or talk to people. Especially when I think you're cool, and I think pretty much everyone is cool.
 
-TO MY OOMFS!! hey you guys mean a lot to me even though we don't talk. I enjoy sitting around you guys. If i have any kind of dni in my mind, feel free to sit with me. If i don't have any dni.. still feel free to sit with me. I love looove sitting with people, it makes me very happy. Love you guys ^^
+TO MY OOMFS!! hey you guys mean a lot to me even though we don't talk. I enjoy sitting around you guys. If i have any kind of dni in my status, feel free to sit with me. If i don't have any dni.. still feel free to sit with me. I love looove sitting with people, it makes me very happy. Love you guys ^^
   </details>
 
 
