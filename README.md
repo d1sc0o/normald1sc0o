@@ -97,6 +97,8 @@ Never idolize mental illness, sh, or suicide around me. Sh topics can be very tr
 I am overall a shy person. I get nervous or anxious very easily, be patient ok? Because of this i get scared to interact or contact first. Promise i don't hate you ^^ That being said, I do get very scared to approach people or talk to people. Especially when I think you're cool, and I think pretty much everyone is cool.
 
 TO MY OOMFS!! hey you guys mean a lot to me even though we don't talk. I enjoy sitting around you guys. If i have any kind of dni in my status, feel free to sit with me. If i don't have any dni.. still feel free to sit with me. I love looove sitting with people, it makes me very happy. Love you guys ^^
+
+also i made @OscarsCheeseFactory and @xangel-xxx 's github repositories !!! Yay!!
   </details>
 
 
