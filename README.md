@@ -23,29 +23,15 @@ $${\color{#fff356} links \space !!}$$
 <details>
    <summary>$${\color{#fff356} byi \space !!}$$</summary>
 
- ☆ i'm 14
- 
- ☆ i am not diagnosed with anything HOWEVER. i am not mentally stable.
- 
- ☆ i'm not good with comforting people, but it's okay to vent,, just ask pls
-   
- ☆ never EVER send me s/h pics or idolize it. immediate block.
-     
- ☆ i can be clingy esp if you become my fp. lmk if it bothers you and I'll do my best from there!!
-     
- ☆ I rarely approach / contact first. i promise I don't hate you.
-     
- ☆ i get anxious RLLY easily- and i'm kind of a pushover. please take note of this when interacting!
+ ☆ Hey soo before you interact with me, there's a few things you should know!
+Regarding who I am: I am a fourteen year old fictionkin. I am perfectly comfortable with doubles, and I'm not super in-your-face about my kins. However, if you're uncomfy w/ doubles then hide or block me ^^ kin list will be on my strawpage for anyone who wants to see it.
 
- ☆ looey kin!!
-     
- ☆ uhm my grammer and spelling suck ok.
-     
- ☆ i have a partner !
+I am not mentally stable. I am not diganosed with anything, and I don't claim to have anything. However, I have had some serious (non descript) mental issues before and I still do now. Also, I'm a very bad people pleaser, though I'm trying to be better about it, please be aware of that.
 
- ☆ berryfunny shipper (multishipper in general but this one is my favorite)
- 
- ☆ andd i am very awkward to talk to ok "^_^
+I'm fine with 'mean' jokes, kys/kms jokes, etc. I'm fine with slurs. I do not curse very often. Be careful with sh jokes, especially if I'm not doing well. also i'm ok with semi-sexual jokes.
+
+I am overall a shy person. I get nervous or anxious very easily, be patient ok? Because of this i get scared to interact or contact first. Promise i don't hate you ^^ That being said, I do get very scared to approach people or talk to people. Especially when I think you're cool, and I think pretty much everyone is cool.
+
 </details>
 
 <details> 
@@ -61,7 +47,6 @@ usually in dandy's world area >>>
 ☆ I can block / unfriend freely and without explanation. also, RP DNI!!!
 
 ☆ while on the topic of ships, i'm fine talking about berryfunny or maybe moonberry, and most unproblematic ships... except fruitcake. not a fan! just nothing nsfw-ship related, thanks!
-
    
 ☆ also, I have a partner! however, i (aswell as my partner) am okay with semi-sexual JOKES. no actual flirting plss.
 
@@ -84,24 +69,22 @@ usually in dandy's world area >>>
 <img width="700" height="500" alt="New Drawing (1)" src="https://github.com/user-attachments/assets/863bea54-a99a-4d9d-b752-25e2854f118d" />
 
 <details>
-    <summary>$${\color{#fff356} important \space !}$$</summary>
-   ☆ Hey soo before you interact with me, there's a few things you should know!
-Regarding who I am: I am a fourteen year old fictionkin. I am perfectly comfortable with doubles, and I'm not super in-your-face about my kins. However, if you're uncomfy w/ doubles then hide or block me ^^ kin list will be on my strawpage for anyone who wants to see it.
-
-I am not mentally stable. I am not diganosed with anything, and I don't claim to have anything. However, I have had some serious (non descript) mental issues before and I still do now. Also, I'm a very bad people pleaser, though I'm trying to be better about it, please be aware of that.
-
-I'm fine with 'mean' jokes, kys/kms jokes, etc. I'm fine with slurs. I do not curse very often. Be careful with sh jokes, especially if I'm not doing well.
-
-Never idolize mental illness, sh, or suicide around me. Sh topics can be very triggering to me so be very very careful.
-
-I am overall a shy person. I get nervous or anxious very easily, be patient ok? Because of this i get scared to interact or contact first. Promise i don't hate you ^^ That being said, I do get very scared to approach people or talk to people. Especially when I think you're cool, and I think pretty much everyone is cool.
+    <summary>$${\color{#fff356} extra \space !}$$</summary>
 
 TO MY OOMFS!! hey you guys mean a lot to me even though we don't talk. I enjoy sitting around you guys. If i have any kind of dni in my status, feel free to sit with me. If i don't have any dni.. still feel free to sit with me. I love looove sitting with people, it makes me very happy. Love you guys ^^
 
-also i made @OscarsCheeseFactory and @xangel-xxx 's github repositories !!! Yay!!
+---
+
+also i made @OscarsCheeseFactory and @xangel-xxx 's github repositories !!! Yay!! hmu if you need github help through ata or whispers. also, if we're friends, i'll make u a github repository if you want. lmk ^^
+
+for people i don't know, i will make you a repository (if you want) if we're doing a trade- for art or for a skin ! i'll just need any and all infor you want on it and then i'll make it for ya ^^
+
+also i do skin trades / gifts if I think you're very cool / you have a cool oc or sona.
   </details>
 
 
+
+***I NEED TO REMAKE THIS OK...***
 </div>
 
 
